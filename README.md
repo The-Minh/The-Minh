@@ -1,5 +1,5 @@
 👋 Hi! I'm Thê-Minh, a Product Manager based in France 🇫🇷.
 
-👨‍💻 Currently working at [HostnFly](hostnfly.com/), a cool Airbnb management startup.
+👨‍💻 More about me [here](http://polywork.com/the_minh).
 
 👾 Food and music nerd.
